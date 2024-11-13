@@ -14,5 +14,5 @@ Me gustan los gatos, los cupcakes y patinar
 - 💬 Ask me about todo menos mi ex casi algo (mentira me encanta contar esa weada)
 - 📫 How to reach me: llamame 8993503443
   pronouns... emo/darck
-- ⚡ Fun fact: soy terraplanista
+- ⚡ Fun fact: soy terraplanista y posiblemente autista ( me gustan los autos)
 -->
